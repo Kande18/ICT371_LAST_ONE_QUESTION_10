@@ -1,0 +1,2 @@
+# ICT371_LAST_ONE_QUESTION_10
+Question 10 of ict371
